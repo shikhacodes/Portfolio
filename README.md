@@ -17,8 +17,7 @@ https://github.com/user-attachments/assets/cb7466a6-5467-4f7b-a42a-81016b9ee64f
 https://github.com/user-attachments/assets/90e45a4a-1189-4260-b8b1-e69691a50084
 ![18_20240903_214716_0015](https://github.com/user-attachments/assets/f2b881a8-1086-4b0b-bc90-34642c4bf2bd)
 ![19_20240903_214716_0016](https://github.com/user-attachments/assets/d64e8bfe-6353-4e34-8fed-70c5e1eddf19)
-[https://github.com/shikhacodes/Portfolio/blob/fa6aad9a612b203b676435c9b94e8e36d6c5d276/Carousel%20Posters_20240903_215837_0001.mp4]
-(https://github.com/user-attachments/assets/d5fb7dd4-b184-47e5-b74a-de9257b732df)
+https://github.com/user-attachments/assets/d5fb7dd4-b184-47e5-b74a-de9257b732df
 ![21_20240903_214716_0017](https://github.com/user-attachments/assets/1292ab5a-dfb5-4886-9a87-c14ef98758de)
 ![22_20240903_214716_0018](https://github.com/user-attachments/assets/e9e64967-5dab-433e-8b0e-91556ee22e3c)
 ![23_20240903_214716_0019](https://github.com/user-attachments/assets/e14eb074-15dd-4c54-9252-3edab77fd322)
