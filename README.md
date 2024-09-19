@@ -23,3 +23,7 @@ https://github.com/user-attachments/assets/d5fb7dd4-b184-47e5-b74a-de9257b732df
 ![23_20240903_214716_0019](https://github.com/user-attachments/assets/e14eb074-15dd-4c54-9252-3edab77fd322)
 ![24_20240903_214716_0020](https://github.com/user-attachments/assets/5e03aba5-149c-4814-8c1e-795197d48645)
 ![25_20240903_214716_0021](https://github.com/user-attachments/assets/ec639dc7-9f5a-4285-b232-e3430b8407cc)
+
+# Check Out below link for Magazine Articles:
+
+https://drive.google.com/drive/folders/1MXawqz9tt4f-_Y7Ltkese0MOj4_pVe9S
